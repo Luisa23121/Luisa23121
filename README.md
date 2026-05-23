@@ -71,5 +71,5 @@ Disfruto comprender cómo funcionan los sistemas detrás de escena y enfrentar n
 
 ## 📫 Contacto
 
-- Correo: tu_correo@ejemplo.com
+- Correo: luisamaria23121@gmail.com
 - LinkedIn: Próximamente
